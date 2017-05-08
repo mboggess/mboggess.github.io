@@ -9,6 +9,5 @@ On this page, you can find links to her current projects and current CV.
 [DIMS](https://github.com/uw-dims)
 
 ### Current Resume
-
-May 08, 2017](https://drive.google.com/open?id=0B3gXzAJ8WP51NGV3aUh3ZlFFd28)
+[May 08, 2017](https://drive.google.com/open?id=0B3gXzAJ8WP51NGV3aUh3ZlFFd28)
 
